@@ -1,5 +1,6 @@
-## Hi there 👋
-
+## hello. i'm a person i guess
+# 🏳️‍⚧️ and lesbian as fuck
+# bad at coding
 <!--
 **Tuwuppy/tuwuppy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
